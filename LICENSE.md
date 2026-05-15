@@ -1,4 +1,4 @@
-# 
+# AI-powered NFT Mint Bot for nft sniper bot | gas-fee-estimation & early-mint-access offers the most advanced nft sniper bot, with gas-fee-estimation and early-mint-access. Ideal
 
 
 
